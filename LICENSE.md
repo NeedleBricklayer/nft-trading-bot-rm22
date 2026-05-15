@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with professional nft trading bot | proxy-transactions + slippage-control, the #1 nft trading bot. Includes proxy-transactions and slippage-control for a
 
 
 
